@@ -19,7 +19,7 @@ ________________________________________________________________________________
 ![Beabadoobee](https://i.pinimg.com/564x/52/a0/e5/52a0e569192123d12dbd82d555b57d2f.jpg)
 <iframe style="border-radius:12px" src="https://open.spotify.com/embed/artist/35l9BRT7MXmM8bv2WDQiyB?utm_source=generator" width="100%" height="380" frameBorder="0" allowfullscreen="" allow="autoplay; clipboard-write; encrypted-media; fullscreen; picture-in-picture" loading="lazy"></iframe>
 ____________________________________________________________________________________________________________________________________________________________________
-# Pls go support these artist <3
+# Pls go support these artists <3
 ![Lana](https://i.pinimg.com/originals/81/4b/72/814b7217bba08ab7915e684fccc81e89.gif)
 # below is a playlist u can listen to <3
 <iframe style="border-radius:12px" src="https://open.spotify.com/embed/playlist/68IY59VyTC1p3LZ8TQVGQk?utm_source=generator" width="100%" height="380" frameBorder="0" allowfullscreen="" allow="autoplay; clipboard-write; encrypted-media; fullscreen; picture-in-picture" loading="lazy"></iframe>
